@@ -9,3 +9,7 @@
 - Experienced Area Sales Manager with a demonstrated history of working in the financial services industry
 - Skilled in Customer Service, Management, Management Information Systems (MIS), Leadership, and marketing
 - Strong sales professional with a PGDM focused in Marketing and Finance from Assam Institute of management
+
+# Skills
+
+Blockchain
